@@ -1,1 +1,1 @@
-# 21SJ6-mplscollege.github.io
+# 21SJ6.github.io
